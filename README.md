@@ -1,0 +1,2 @@
+# dumpold
+Gunakan Dengan Bijak
